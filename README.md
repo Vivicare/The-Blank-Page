@@ -1,2 +1,2 @@
 # The Blank Page
-The new novel of romantic, Thriller 
+A Blank Page – Your digital diary of memories, talents, and opportunities.
